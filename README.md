@@ -1,4 +1,4 @@
-### Ola meu nome e Luana ,sou estudante , estou aprendendo a ultilizar o site . ❤
+### Ola meu nome e Luana ,sou estudante  ❤
 
 
 <div>
